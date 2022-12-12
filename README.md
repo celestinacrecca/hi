@@ -1,1 +1,1 @@
-# readme-typing-SG
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Sans-serif&pause=1000&color=8F74FC&width=435&lines=Hi!+I'm+Clarisse+Nicole+Lambo;I'm+19+yrs+old;A+future+Animator)](https://git.io/typing-svg)
